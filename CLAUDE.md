@@ -164,6 +164,7 @@ Claude кладе з нього файли агента в папку, збер�
 - Візуал: Quiet Luxury (navy + золото); жіночі проєкти: бежевий, чорний, білий, червоний. На портретах без омолодження і ретуші, що змінює риси.
 - Посилання:
   - Instagram: https://www.instagram.com/psy.pani_iryna (@psy.pani_iryna)
+  - Instagram простору «Сила разом. Коло масштабування»: https://www.instagram.com/syla_razom_space.kh (@syla_razom_space.kh)
   - Facebook: https://www.facebook.com/share/1J38TTisPf/
   - TikTok: https://www.tiktok.com/@psy.pani_iryna
   - YouTube: https://youtube.com/@update_for_you
