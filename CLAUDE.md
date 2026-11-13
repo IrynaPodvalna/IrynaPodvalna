@@ -170,6 +170,7 @@ Claude кладе з нього файли агента в папку, збер�
   - YouTube: https://youtube.com/@update_for_you
   - Threads: https://www.threads.com/@psy.pani_iryna
   - Telegram-канал: https://t.me/update_for_you8 (@update_for_you8)
+  - Telegram-ком'юніті Restart.ua (безкоштовне, збирає інші канали і групи): https://t.me/+j2brptKvevY1N2Uy
   - Telegram (закрите посилання-запрошення): https://t.me/+JD0uR_Mh2Ys3MGIy (уточнити, що це)
 - Що ще запам'ятати: мета 100 000 грн/міс у ресурсі, сильна команда, розвиток в EUlife. Стратегія: не нові продукти,
   а дві зрозумілі системи продажів; автоматизація, CRM, AI-помічник, щоб відпочивати 2 тижні без зупинки процесів.
